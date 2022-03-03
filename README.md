@@ -1,0 +1,2 @@
+# karadnz.github.io
+deneme
